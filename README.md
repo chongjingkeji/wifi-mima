@@ -70,7 +70,7 @@ https://www.bilibili.com/opus/1252672785781620771
 
 恩山论坛帖子
 
-https://www.right.com.cn/forum/forum.php?mod=viewthread&tid=8491112&page=1&extra=#pid23301037
+https://www.right.com.cn/forum/thread-8491176-1-1.html
 
 
 
